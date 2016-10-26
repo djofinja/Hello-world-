@@ -1,3 +1,3 @@
 Hello people, 
 
-I am Djordje, i am from Serbia, love watching movies and more than movies is code programming.
+I am Djordje, i am from Serbia, i am beginner, i need to practise a lot of.
